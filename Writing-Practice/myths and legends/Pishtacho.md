@@ -1,0 +1,6 @@
+# GRAMMAR PRACTICE :muscle::book::us: :bulb:
+
+## PAST CONTINUOS (PROGRESSIVE), SIMPLE PAST AND ADVERB MANNER                                                                                                                                                                                                      
+Once upon a time, in the center of Peru, there was a history called "Pishtaco". This is a history really popular in the countries of Peru and Ecuador.
+In the city of "Cerro de Pasco", the people saw in the main square a foreign man. The residents of the town said that there was a man who killed the people. 
+The children were very nervous and scared by the situation in the city. One day a woman was walking on the road and the woman saw many people on the floor that had died so the woman ran very fast. after that, the woman carefully arrived at her house and immediately called her father and she told him. moreover, the people of that city were terrified and decided to move to another town. The people quickly made travel suitcase. finally they lived happily ever after.
