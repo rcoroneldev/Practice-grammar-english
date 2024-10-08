@@ -1,13 +1,12 @@
 # Cover Letter example to apply to companies with role Azure Data Engineer
 
 8/07/2024
- 
 Romario Coronel
- 
 rcoroneldev@gmail.com
- 
+
 Dear Mrs. Lucia Rodriguez
- 
+
+
 I am excited to be applying for the job Azure Data Engineer position at the IT Company advertised in
 LinkedIn Corporation on 07 October. I have worked in different companies with the role of Senior Data Engineer. 
 I have participated in projects related to data science, big data, and machine learning. besides 
