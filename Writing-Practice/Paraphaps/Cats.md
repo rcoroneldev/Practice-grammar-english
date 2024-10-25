@@ -8,3 +8,4 @@ Frequently, they are playing with some objects in the house. It’s really to se
 The second reason is that cats are very clean animals. They always keep their fur clean and shiny. They are very good.
 The third reason is that cats are very quiet animals. They don’t make any noise.
 In summary, the cats are very friendly animals.They are very good pets.
+
